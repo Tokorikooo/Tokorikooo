@@ -1,0 +1,3 @@
+Hello my name is tokorikooo im player valorant/rust ...
+My discord is tokorikoo and my server discord is : discord.gg/NqNmG3hs
+
